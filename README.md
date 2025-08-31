@@ -1,16 +1,19 @@
-## Hi there 👋
+<img width="1911" height="935" alt="Image" src="https://github.com/user-attachments/assets/8c7da14b-9211-4d64-850f-a0fb60ca82c6" />
 
-<!--
-**hawksuah/hawksuah** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ᴋᴋᴇᴜᴛᴇᴏᴘꜱɴᴇᴜɴ ɪ ɴᴏʀᴀᴇ .
+--------------------------
+ ╰┈┈➤ ᴄ + ʜ , ᴡ 2 ɪ , ɪɴᴛ ᴜɴʟᴇꜱꜱ 'ᴅɴɪ' ɪꜱ ɪɴ ᴍʏ ɴᴀᴍᴇ ! 　　———-««
 
-Here are some ideas to get you started:
+☆  .  ᶻ 𝗓 𐰁
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+⤷ ᴅɴɪ ☆ ➤ ᴅᴀʀᴋꜱʜɪᴘᴘᴇʀꜱ . ᴜɴᴅᴇʀ 10 . ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ .  ·˚ ༘₊· ͟͟͞͞꒰➳
+
+-ˋˏ✄┈┈┈┈ ɪɴꜰᴘ .  ᴇɴɢ . ╭──╯ . . . . .
+
+ᛝ ── .✦ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀꜱᴋ ᴍᴇ ᴀɴʏᴛʜɪɴɢ . 
+
+ᴛʜᴀɴᴋ ʏᴏᴜ ! ‿‿‿‿
+
+--------------------------
+
