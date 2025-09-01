@@ -1,6 +1,6 @@
-![Image](https://github.com/user-attachments/assets/0a287883-9ca0-4835-8f6e-f93dbca0ed54)
+![Image](https://github.com/user-attachments/assets/6d8cba92-9b4f-44df-a57f-1f7209966ab9)
 
-ᴋᴋᴇᴜᴛᴇᴏᴘꜱɴᴇᴜɴ ɪ ɴᴏʀᴀᴇ .
+ᴏʜ ɪɴ ᴀ ʙʟɪɴᴋ ɢᴏɴᴇ .
 --------------------------
  ╰┈┈➤ ᴄ + ʜ , ᴡ 2 ɪ , ɪɴᴛ ᴜɴʟᴇꜱꜱ 'ᴅɴɪ' ɪꜱ ɪɴ ᴍʏ ɴᴀᴍᴇ ! 　　———-««
 
