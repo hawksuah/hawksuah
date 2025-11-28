@@ -14,6 +14,6 @@
 ᛝ ── .✦ ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀꜱᴋ ᴍᴇ ᴀɴʏᴛʜɪɴɢ . 
 
 ᴛʜᴀɴᴋ ʏᴏᴜ ! ‿‿‿‿
-
+       dang dude i know im chronically offline but the hell am i missing ??? ,,
 --------------------------
 
